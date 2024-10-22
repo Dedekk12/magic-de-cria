@@ -1,1 +1,3 @@
-# magic-
+lote de card 1 : (https://shopee.com.br/Bulk-Mega-Lote-Com-520-Cards-de-Magic-20-Raras-100-Incomuns-400-Comuns-i.337433036.10525683721?sp_atk=9821d984-9958-4490-bc0d-748e94c526db&xptdk=9821d984-9958-4490-bc0d-748e94c526db)
+
+Lote de lands 1 : https://shopee.com.br/Magic-the-Gathering-Conjunto-de-terrenos-b%C3%A1sicos-basic-lands-20-unidades-i.400133138.8537304563?srsltid=AfmBOoocx1Jr5OqKjxOyuqNkD-9EIK-qr1wi-mQWxDNNIiNIrVeGMkqF
